@@ -1,2 +1,2 @@
 # not your regular exorcist
-![maxresdefault](https://github.com/X-orcist/X-orcist/assets/114482638/25a18630-4375-4a1b-b691-d91084887b43)
+![jared-fluegel-all-daemons-smaller](https://github.com/X-orcist/X-orcist/assets/114482638/b6569f0a-205c-43a7-9cec-70c849e49425)
